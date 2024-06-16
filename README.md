@@ -27,4 +27,3 @@
 
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-<script type='text/javascript' src='//pl23564203.highrevenuenetwork.com/fb/51/e0/fb51e0d992e828547d2484e0571a95e8.js'></script>
